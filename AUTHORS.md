@@ -20,3 +20,4 @@
 - Minh Quang, CAO, caominhquang2002@gmail.com
 - Lamia, HATEM, lamiahatem46@gmail.com
 - Maily, CIAVALDINI, mailyciavaldini@gmail.com
+- Soumaya, IKHRICHI, ikhrichism@gmail.com
